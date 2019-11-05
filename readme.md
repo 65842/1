@@ -10,8 +10,7 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 ### 观众请下载：[sgb7.xyz](http://sgb7.xyz)
 ### 主播开播请下载：[nb8j.xyz](http://nb8j.xyz )<br> （观众下载无法正常使用）
 备用下载地址如下<br>
-
-dmjs.xyz<br> 
+ 
 fmsz.xyz<br>
 jz0a.xyz<br>
 g5vn.xyz<br>
