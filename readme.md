@@ -5,7 +5,7 @@
 最新的平台回家页面  最新的平台回家页面https://github.com/1jie/1       <br>
 telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：https://github.com/1jie/1/blob/master/TG%E6%95%99%E7%A8%8B.md
 
-# 最新苹果安卓下载地址2019年10月27日更新
+# 最新苹果安卓下载地址2019年11月6日更新
 ### [fmsz.xyz](http://fmsz.xyz)
 ### [sgb7.xyz](http://sgb7.xyz)
 ### [jz0a.xyz](http://jz0a.xyz)<br>
