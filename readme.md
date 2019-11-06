@@ -6,13 +6,12 @@
 telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：https://github.com/1jie/1/blob/master/TG%E6%95%99%E7%A8%8B.md
 
 # 最新苹果安卓下载地址2019年10月27日更新
-### [7flj.xyz](http://7flj.xyz)
-### 观众请下载：[sgb7.xyz](http://sgb7.xyz)
-### 主播开播请下载：[nb8j.xyz](http://nb8j.xyz )<br> （观众下载无法正常使用）
+### [fmsz.xyz](http://fmsz.xyz)
+### [sgb7.xyz](http://sgb7.xyz)
+### [jz0a.xyz](http://jz0a.xyz)<br>
 备用下载地址如下<br>
  
-fmsz.xyz<br>
-jz0a.xyz<br>
+
 g5vn.xyz<br>
 hfxh.xyz<br>
 2hp2.xyz<br>
