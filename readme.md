@@ -9,7 +9,7 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 ### [fmsz.xyz](http://fmsz.xyz)
 ### [sgb7.xyz](http://sgb7.xyz)
 ### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
-备用下载地址如下<br>
+备用观众版下载地址如下<br>
  
 jz0a.xyz<br>
 g5vn.xyz<br>
@@ -25,6 +25,18 @@ xhs3.xyz<br>
 6gv0.xyz<br>
 yo1w.xyz<br>
 s6op.xyz<br>
+
+备用主播版下载地址如下<br>
+dau5.xyz<br>
+ex05.xyz<br>
+1eh0.xyz<br>
+vb7a.xyz<br>
+zspk.xyz<br>
+glvg.xyz<br>
+3t6h.xyz<br>
+7l6n.xyz<br>
+q0up.xyz<br>
+5zsx.xyz<br>
 
 
 # 赌场说明
