@@ -1,11 +1,4 @@
-# 直播平台回家页
-本页专人更新，随时获得直播最新下载地址！<br>
-防止因为老域名屏蔽无法下载最新平台app，方便大家回家！<br>
-请立刻收藏保存本页！！<br>
-最新的平台回家页面  最新的平台回家页面https://github.com/1jie/1       <br>
-telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：https://github.com/1jie/1/blob/master/TG%E6%95%99%E7%A8%8B.md
-
-# 最新苹果安卓下载地址2019年11月6日更新
+# 小可爱最新下载地址（2019年11月6日更新）
 ### [fmsz.xyz](http://fmsz.xyz)
 ### [sgb7.xyz](http://sgb7.xyz)
 ### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
@@ -37,6 +30,13 @@ glvg.xyz<br>
 7l6n.xyz<br>
 q0up.xyz<br>
 5zsx.xyz<br>
+
+# 直播平台回家页
+本页专人更新，随时获得直播最新下载地址！<br>
+防止因为老域名屏蔽无法下载最新平台app，方便大家回家！<br>
+请立刻收藏保存本页！！<br>
+最新的平台回家页面  最新的平台回家页面https://github.com/1jie/1       <br>
+telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：https://github.com/1jie/1/blob/master/TG%E6%95%99%E7%A8%8B.md
 
 
 # 赌场说明
