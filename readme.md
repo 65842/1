@@ -8,10 +8,10 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 # 最新苹果安卓下载地址2019年11月6日更新
 ### [fmsz.xyz](http://fmsz.xyz)
 ### [sgb7.xyz](http://sgb7.xyz)
-### [jz0a.xyz](http://jz0a.xyz)<br>
+### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
 备用下载地址如下<br>
  
-
+jz0a.xyz<br>
 g5vn.xyz<br>
 hfxh.xyz<br>
 2hp2.xyz<br>
