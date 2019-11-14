@@ -1,23 +1,22 @@
 # 小可爱最新下载地址（2019年11月6日更新）
 ### [fmsz.xyz](http://fmsz.xyz)
-### [sgb7.xyz](http://sgb7.xyz)
+### [6a49.xyz](http://6a49.xyz)
 ### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
  
-jz0a.xyz<br>
-g5vn.xyz<br>
-hfxh.xyz<br>
-2hp2.xyz<br>
-986b.xyz<br>
-jhni.xyz<br>
-pulq.xyz<br>
-1i31.xyz<br>
-df5i.xyz<br>
-6mh0.xyz<br>
-xhs3.xyz<br>
-6gv0.xyz<br>
-yo1w.xyz<br>
-s6op.xyz<br>
+0bhg.xyz<br>
+9fcv.xyz<br>
+zdpz.xyz<br>
+i68e.xyz<br>
+g1xu.xyz<br>
+6j6l.xyz<br>
+v0vv.xyz<br>
+lo4n.xyz<br>
+shzy.xyz<br>
+3zzs.xyz<br>
+5wqi.xyz<br>
+btqs.xyz<br>
+
 
 备用主播版下载地址如下<br>
 dau5.xyz<br>
