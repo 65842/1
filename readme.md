@@ -1,3 +1,6 @@
+# 赌场最新下载地址（2019年11月26日更新)
+### [www.zz386.com](http://www.zz386.com)
+
 # 小可爱最新下载地址（2019年11月15日更新）
 ### [fmsz.xyz](http://fmsz.xyz)
 ### [6a49.xyz](http://6a49.xyz)
